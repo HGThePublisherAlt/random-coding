@@ -1,2 +1,4 @@
-# random-coding
-IDK I am just coding random cause I have no ideas.
+# This is beta content so this will be trash!
+
+I don't know what to say here.
+HGhgfdgfshdgfhrsgjhidushgil
